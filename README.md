@@ -1,3 +1,3 @@
 # Jason_techprep
 
-I haven't this before 🙏 hope it works :)
+I haven't done this before 🙏 hope it works :)
